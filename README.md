@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EAsem22
-- 👀 I’m interested in Product Design and Management and Digital Marketing
+- 👀 I’m interested in Product Design and Management
 - 🌱 I’m currently learning Coding for Managers, Designers & Entrepreneurs and UI/UX Specialisation.
 - 💞️ I’m looking to collaborate on Product design 
 - 📫 How to reach me on elouiseasem@gmail.com
